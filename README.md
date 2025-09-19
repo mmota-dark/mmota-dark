@@ -1,4 +1,4 @@
-![Imagem](https://media.licdn.com/dms/image/v2/D4D16AQFMFw7M8sgx-g/profile-displaybackgroundimage-shrink_350_1400/profile-displaybackgroundimage-shrink_350_1400/0/1736183710860?e=1757548800&v=beta&t=G3If2CIKWnkcaqArfQPqPqvhSZoG26GWlK4-mTPCmYs)
+![Imagem](https://media.licdn.com/dms/image/v2/D4D16AQFMFw7M8sgx-g/profile-displaybackgroundimage-shrink_350_1400/profile-displaybackgroundimage-shrink_350_1400/0/1736183710860?e=1760572800&v=beta&t=8ha0gUoS_ZZ08kp8PTiolMQVhqMCPk1GMv4B5u0MyBA)
 
 # 👋 Olá, eu sou Milene Mota  
 
