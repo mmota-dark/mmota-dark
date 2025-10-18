@@ -1,4 +1,4 @@
-![Imagem](https://media.licdn.com/dms/image/v2/D4D16AQFMFw7M8sgx-g/profile-displaybackgroundimage-shrink_350_1400/profile-displaybackgroundimage-shrink_350_1400/0/1736183710860?e=1760572800&v=beta&t=8ha0gUoS_ZZ08kp8PTiolMQVhqMCPk1GMv4B5u0MyBA)
+![Imagem](https://drive.google.com/uc?export=view&id=11j9NopnBzw2DGyJWqjQdlcKr9L_cC-HK)
 
 # 👋 Olá, eu sou Milene Mota  
 
